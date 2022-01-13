@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning how to be more patient with myself.
 
-- 💞️ I’m looking to collaborate on projects that push society toward the good. 
+- 💞️ I’m looking to collaborate on projects that propel society toward the good. 
 
 - 📫 How to reach me ... 305.515.5856 StevieIsmagic@gmail.com
 
