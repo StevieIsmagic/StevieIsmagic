@@ -6,7 +6,7 @@
 
 - 💞️ I’m looking to collaborate on projects that propel society toward the good. 
 
-- 📫 How to reach me ... 305.515.5856 StevieIsmagic@gmail.com
+- 📫 How to reach me ... steven@ocampo.io / 305.515.5856
 
 - Ask me about the good ?
 
